@@ -1,1 +1,1 @@
-#Ganz groß durchstarten, das ist das Ziel von jedem.
+#Ganz groß durchstarten, das ist das Ziel von jedem. Doch die wenigsten schaffen es ... Ich habe mir meinen Traum erfüllt vom Porsche. Das Porsche Leasing habe ich letzten Montat bei https://www.gute-rate.de/fahrzeuge/marken/porsche/ abgeschlossen.
